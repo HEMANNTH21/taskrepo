@@ -4,6 +4,9 @@
 :grinning:
 
 ### *PICTURE* :
+#### GOKU
+![GOKU](https://c.tenor.com/K6vfR0tWnlwAAAAC/goku-ultra-instinct.gif)
+
 #### NARUTO
 ![NARUTO](https://c.tenor.com/1kH0AK5a6qMAAAAC/naruto-boruto.gif)
 
